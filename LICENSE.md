@@ -1,4 +1,4 @@
-#  
+#  sol's rng Script rare is the best sol's rng Script, featuring no clip and silent aim. Safe and powerful for all your needs.
 
 
 
